@@ -1,4 +1,4 @@
-# Hi there 👋, I'm Garama Gurmu
+# Hi there 👋, I'm Garama Nagaro Gurmu
 
 ### Senior Software Engineer | Full-Stack Developer | Mobile Developer | AI Researcher
 
